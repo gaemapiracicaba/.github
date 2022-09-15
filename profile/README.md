@@ -1,12 +1,6 @@
 O Grupo de Atuação Especial de Defesa do Meio Ambiente (GAEMA) foi criado por meio do Ato Normativo nº 552/08 - PGJ, 04.09.2008.
 
-
-
-
-
-
-
-## 
+##
 
 <!--
 
